@@ -1,1 +1,1 @@
-👋  Hi, I’m Roy!
+Hi, I’m Roy!
